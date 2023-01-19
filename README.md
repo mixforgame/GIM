@@ -1,3 +1,18 @@
+# 3.4 https://www.bilibili.com/blackboard/activity-IqU8VSBVHF.html
+神里绫华skin
+https://activity.hdslb.com/blackboard/static/20230116/c84ef0977c17fb1198f6887261fea35f/EL7Qq0i6Gm.zip  
+丽莎skin
+https://activity.hdslb.com/blackboard/static/20230117/c84ef0977c17fb1198f6887261fea35f/2p9SR7nlZ6.zip  
+艾尔海森
+https://activity.hdslb.com/blackboard/static/20230111/c84ef0977c17fb1198f6887261fea35f/ac0PJo6yys.zip  
+瑶瑶
+https://activity.hdslb.com/blackboard/static/20230111/c84ef0977c17fb1198f6887261fea35f/I1HlzqY5hj.zip  
+魈
+https://activity.hdslb.com/blackboard/static/20230111/c84ef0977c17fb1198f6887261fea35f/ph7LyjNPUb.zip  
+夜兰
+https://activity.hdslb.com/blackboard/static/20230111/c84ef0977c17fb1198f6887261fea35f/hRGkjDp1Go.zip  
+胡桃
+https://activity.hdslb.com/blackboard/static/20230111/c84ef0977c17fb1198f6887261fea35f/HOsVwZ21eA.zip
 # 3.3 https://www.bilibili.com/blackboard/activity-Er161cOgXs.html
 珐露珊
 https://activity.hdslb.com/blackboard/static/20221202/c84ef0977c17fb1198f6887261fea35f/opJw6W1EFy.zip   
